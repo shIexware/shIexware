@@ -9,3 +9,7 @@
 - Discord, aswgskool02lanlan32#0054 [ May change names. ]
 - Twitter, @skids_k83725 [ Didn't want that name but its alright. ]
 - Roblox, @auzarse or @shIexware or @areuzion OR.. bIizerr, not blizerr.
+
+# 📜 Notes
+
+- May edit this introduction thingy, later.
