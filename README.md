@@ -10,7 +10,10 @@
 - Twitter, @skids_k83725 [ Didn't want that name but its alright. ]
 - Roblox, @auzarse or @shIexware or @areuzion OR.. bIizerr, not blizerr.
 
-# 📜 Notes
+# 📜 Notes & Links 🔗
 
 - May edit this introduction thingy, later.
-- https://discord.gg/TKmePPGXA4 [ Please Join! ]
+- idk what to put here LOL
+- -----------------Links------------------------
+- Discord: https://discord.gg/TKmePPGXA4 [ Please Join! ]
+- Roblox: https://www.roblox.com/users/4585225480/profile [ Follow me if you want. ]
