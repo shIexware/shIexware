@@ -13,3 +13,4 @@
 # 📜 Notes
 
 - May edit this introduction thingy, later.
+- https://discord.gg/TKmePPGXA4 [ Please Join! ]
