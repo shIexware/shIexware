@@ -4,7 +4,7 @@
 - 🌱 I’m currently learning python & C# or C## idk
 - 💞️ I’m looking to collaborate on github and have people help me script!
 
-# [📫] How to reach me. 
+# [📫] How to reach me [🗣]
 
 - Discord, aswgskool02lanlan32#0054 [ May change names. ]
 - Twitter, @skids_k83725 [ Didn't want that name but its alright. ]
@@ -18,4 +18,5 @@
 # [🔗] Link(s) [🔗]
 
 - Discord: https://discord.gg/TKmePPGXA4 [ Please Join! ]
+- My friend's Discord: https://discord.gg/5VGeJPgDnR [ Please Also Join! ]
 - Roblox: https://www.roblox.com/users/4585225480/profile [ Follow me if you want. ]
